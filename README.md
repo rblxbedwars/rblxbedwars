@@ -1,5 +1,3 @@
 ![div](https://i.imgur.com/n1oCvyI.png)
    ![terra](https://i.imgur.com/uV72TeM.png)
-![image](https://github.com/user-attachments/assets/994dacd8-14e5-4aa2-a8b6-138dd5bdc7f8)![image](https://github.com/user-attachments/assets/37a368ee-e1df-4615-bfba-9fd1266548d1)![image](https://github.com/user-attachments/assets/41e688ea-7a25-46a7-8a2f-8805c7b44f6f)
-
-
+![image](https://github.com/user-attachments/assets/994dacd8-14e5-4aa2-a8b6-138dd5bdc7f8)
