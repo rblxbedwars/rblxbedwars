@@ -4,9 +4,13 @@
 
 
    <p align="center"> ໃ ۫ ּ⑅݂ ̫ terra #1 fan . </p>
-<p align="center"> 𐔌ᩧ ͜͝ ใ ͜ ᩧຼʆ𓐇۪  c + h = always.  she / her  | ͜͝༏ྀ𓈒૮𓈒ֺּׅ ̫ ¦ 
+<p align="center"> 𐔌ᩧ ͜͝ ใ ͜ ᩧຼʆ𓐇۪  aroace ;  she / her  | ͜͝༏ྀ𓈒૮𓈒ֺּׅ ̫ ¦ 
 
+<p align="center"> fandoms : roblox bedwars, 4skn, bt, dead plate, dw, dw ( doodle world )
+   
+<p align="center">   more info : use tone tags with me. and if you want 2 be friends, sure! but only if im comfortable w/ you. please note that i LOVE talking with people, and im always active. PLEASE!!  </p>
 
 <p align="center">   https://discord.gg/MyGrKcJt<--  my pony town discord server! ^_^ pls join ! </p>
+
 
 ![div2](https://github.com/user-attachments/assets/a8291095-4295-4501-b970-b729fb52600e)
