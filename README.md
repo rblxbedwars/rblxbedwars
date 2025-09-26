@@ -1,16 +1,7 @@
-![div](https://i.imgur.com/n1oCvyI.png)
-   ![terra](https://i.imgur.com/uV72TeM.png)
-<p align="center"   ![image](https://github.com/user-attachments/assets/994dacd8-14e5-4aa2-a8b6-138dd5bdc7f8) </p>
-
-
-   <p align="center"> ໃ ۫ ּ⑅݂ ̫ terra #1 fan . </p>
-<p align="center"> 𐔌ᩧ ͜͝ ใ ͜ ᩧຼʆ𓐇۪  aroace ;  she / her  | ͜͝༏ྀ𓈒૮𓈒ֺּׅ ̫ ¦ 
-
-<p align="center"> fandoms : roblox bedwars, 4skn, bt, dead plate, dw, dw ( doodle world )
-   
-<p align="center">   more info : use tone tags with me. and if you want 2 be friends, sure! but only if im comfortable w/ you. please note that i LOVE talking with people, and im always active. PLEASE!!  </p>
-
-<p align="center">   https://discord.gg/MyGrKcJt<--  my pony town discord server! ^_^ pls join ! </p>
-
-
-![div2](https://github.com/user-attachments/assets/a8291095-4295-4501-b970-b729fb52600e)
+![banner](https://i.imgur.com/U0o6EWo_d.webp?maxwidth=1520&fidelity=grand)
+eandom wip text thing
+![main](https://i.imgur.com/usOlfCT.png)
+skibidi text wip
+![div](https://i.imgur.com/Ho1aMSV_d.webp?maxwidth=1520&fidelity=grand)
+more text because why not 
+![div](https://i.imgur.com/yruQvmg_d.webp?maxwidth=1520&fidelity=grand)
