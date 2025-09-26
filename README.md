@@ -7,6 +7,9 @@
 
 ![div](https://i.imgur.com/Ho1aMSV_d.webp?maxwidth=1520&fidelity=grand)
 
-<p align="center"> c+h is very accepeted, please dont hesitate! but i wont interact first because im shy. my fandoms are tramsformers, roblox bedwars, forsaken, dead plate, doodle world, dandys world and yeah.
+<p align="center"> c+h is very accepeted, please dont hesitate! but i wont interact first because im shy. 
 
+<p align="center"> join my discord server (pt) : https://discord.gg/CCpMfjeW 
+
+  
 ![div](https://i.imgur.com/yruQvmg_d.webp?maxwidth=1520&fidelity=grand)
