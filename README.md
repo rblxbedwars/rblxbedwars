@@ -7,7 +7,9 @@
 
 ![div](https://i.imgur.com/Ho1aMSV_d.webp?maxwidth=1520&fidelity=grand)
 
-<p align="center"> c+h is very accepted, please dont hesitate! but i wont interact first because im shy. i usually dont go cuddle first, but i do your REALLY cool to me and i want to be friends.
+<p align="center"> c+h is very accepted, please dont hesitate! but i wont interact first because im shy. i usually dont go cuddle first, but if i do your REALLY cool to me and i want to be friends.
+
+<p align="center"> rblx bedwars, roblox, crk, crob, deadplate, doodle world, tower world and yah 
 
 <p align="center"> join my discord server (pt) : https://discord.gg/CCpMfjeW 
 
