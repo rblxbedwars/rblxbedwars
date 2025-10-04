@@ -1,5 +1,5 @@
 ![banner](https://i.imgur.com/U0o6EWo_d.webp?maxwidth=1520&fidelity=grand)
-<p align="center"> " builderman im about to come " </p>
+<p align="center"> " hey! the name's builderman. welcome to roblox! " </p>
 
 ![main](https://i.imgur.com/usOlfCT.png)
 
