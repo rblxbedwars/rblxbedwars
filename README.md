@@ -1,19 +1,16 @@
-![banner](https://i.imgur.com/U0o6EWo_d.webp?maxwidth=1520&fidelity=grand)
-<p align="center"> " hey! the name's builderman. welcome to roblox! " </p>
+<div align="center">
 
-![main](https://i.imgur.com/usOlfCT.png)
+![div1](https://i.imgur.com/T0x379s_d.webp?maxwidth=760&fidelity=grand)
 
-<p align="center"> she / her prns only. aroace, please use tone tags with me
+<img width="600" height="650" alt="by .cogzwortj which is ME" src="https://i.imgur.com/XW4ZR2f_d.webp?maxwidth=760&fidelity=grand&fidelity=grand" />
 
-![div](https://i.imgur.com/Ho1aMSV_d.webp?maxwidth=1520&fidelity=grand)
+![div2](https://i.imgur.com/HvFGZmg_d.webp?maxwidth=760&fidelity=grand)
 
-<p align="center"> c+h is very accepted, please dont hesitate! but i wont interact first because im shy. i usually dont go cuddle first, but if i do your REALLY cool to me and i want to be friends. whisper 2 talk, but late resp
+wip wip wip wip!
 
-<p align="center"> rblx bedwars, roblox, crk, crob, deadplate, doodle world, tower world
+<img width="200" height="200" alt="stamps by me" src="https://i.imgur.com/2f03Q8v_d.webp?maxwidth=760&fidelity=grand&fidelity=grand" />
 
-<p align="center"> strawpage / rentry abt pt soon
+<img width="200" height="200" alt="stamps by me" src="https://i.imgur.com/whkDv88_d.webp?maxwidth=760&fidelity=grand&fidelity=grand" />
 
-<p align="center"> join my discord server (pt) : https://discord.gg/jBxdCtPyS
+<img width="200" height="200" alt="stamps by me" src="https://i.imgur.com/zh2UvwD_d.webp?maxwidth=760&fidelity=grand&fidelity=grand" />
 
-  
-![div](https://i.imgur.com/yruQvmg_d.webp?maxwidth=1520&fidelity=grand)
