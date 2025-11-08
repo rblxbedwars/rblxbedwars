@@ -4,7 +4,7 @@
 
 <img width="600" height="650" alt="by .cogzwortj which is ME" src="https://i.imgur.com/XW4ZR2f_d.webp?maxwidth=760&fidelity=grand&fidelity=grand" />
 
-$${\color{FBFBE3}hi \space zach!}$$
+$${\color{FBFBE3}i'll \space alwayswait \space for \space you \space cuz \space youremy \space friend }$$
 
 ![div2](https://i.imgur.com/HvFGZmg_d.webp?maxwidth=760&fidelity=grand)
 
