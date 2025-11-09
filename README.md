@@ -22,7 +22,7 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 
 <details> 
 
-<summary> pony town info </summary>
+<summary> ۪۪۪ ̣̣ : ꒰͜͡♡͜͡꒱ . ݁ ıl </summary>
 
 ` c+h always , when offab w2i! `
 
@@ -36,7 +36,7 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 
 <details> 
 
-<summary> about me </summary>
+<summary> 𐔌ໃ ◟ ͜◜ ͡ ◠ ｡｡  </summary>
 
 ` aroace , minor  `
 
