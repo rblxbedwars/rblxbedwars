@@ -11,7 +11,7 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 <img width="600" height="650" alt="by .cogzwortj which is ME" src="https://i.imgur.com/XW4ZR2f_d.webp?maxwidth=760&fidelity=grand&fidelity=grand" />
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=30&duration=2000&pause=1000&color=FFFFFF&center=true&width=435&lines=illalways+wait+for+you.;cuz+youremy+friend"/>
+<img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=30&duration=2000&pause=1000&color=FFFFFF&center=true&width=435&lines=illalways+wait+for+you.;cuz+youremy+friend"/>
 </p>
 
 
