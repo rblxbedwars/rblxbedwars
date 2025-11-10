@@ -10,6 +10,10 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 ![div1](https://i.imgur.com/T0x379s_d.webp?maxwidth=760&fidelity=grand)
 
 
+<img width="20" height="180" alt="image" src="https://github.com/user-attachments/assets/88a5cceb-4323-4be6-a693-3936a9e2145a" /> main graphic by me, dividers from tumblr <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/67be872d-37c4-4261-b90e-88627344a52b" />
+
+
+
 
 <img width="600" height="650" alt="by m4tt__wazhere on discord which is ME" src="https://i.imgur.com/XW4ZR2f_d.webp?maxwidth=760&fidelity=grand&fidelity=grand" />
 
@@ -22,7 +26,7 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 
 <details> 
 
-<summary> ۪۪۪ ̣̣ : ꒰͜͡♡͜͡꒱ . ݁ ıl </summary>
+<summary> ۪۪pt reminders </summary>
 
 ` c+h always , when offab w2i! `
 
@@ -36,7 +40,7 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 
 <details> 
 
-<summary> 𐔌ໃ ◟ ͜◜ ͡ ◠ ｡｡  </summary>
+<summary>  general info  </summary>
 
 ` aroace , minor  `
 
