@@ -26,7 +26,9 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 
 <details> 
 
-<summary> ۪۪pt reminders </summary>
+<summary> ۪۪pt reminders </summary> 
+
+
 
 ` c+h always , when offab w2i! `
 
@@ -37,6 +39,12 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 ` you are always welcome to be friends with me! i love making friends `
 
 </details>
+
+
+![image](https://github.com/user-attachments/assets/0342e295-06c8-4796-a17c-83738a6e8952) ![image](https://github.com/user-attachments/assets/855846fe-b9a5-41ff-840f-5ca66b922237)
+
+
+
 
 <details> 
 
@@ -51,6 +59,7 @@ HEY!! i totally understand being here !! go find what you need! good luck! ^_^
 ` sfofs gc, n, k <3 `
 
 </details>
+
 
 
 <img width="150" height="150" alt="stamps by me" src="https://i.imgur.com/2f03Q8v_d.webp?maxwidth=760&fidelity=grand&fidelity=grand" />
