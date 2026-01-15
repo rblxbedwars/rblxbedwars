@@ -6,3 +6,12 @@
 
 [ata](https://illseeyouinhell.atabook.org/)
 
+ <summary> read (ptinfo) </summary>
+
+` c+h is extremely encouraged `
+
+` most of the times offtab so w2i `
+
+` im always looking for new friends! `
+
+</details>
