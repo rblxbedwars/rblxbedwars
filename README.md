@@ -4,16 +4,6 @@
 
 <img width="250" height="350" alt="shwep graphic by zixcore on discord" src="https://i.imgur.com/z6bTvHg.png" />
 
-[ata](https://illseeyouinhell.atabook.org/)
-
-<details>
-
- <summary> read (ptinfo) </summary>
-
-` c+h is extremely encouraged `
-
-` most of the times offtab so w2i `
-
-` im always looking for new friends! `
-
-</details>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dosis&size=30&duration=1000&pause=1000&color=54918C&center=true&multiline=true&width=435&height=79&lines=No+more+Mr.+Nice+guy+.+.+.;.+.+.Girl+.+I+mean+girl+." alt="Typing SVG" /></a>
+  
+wip
