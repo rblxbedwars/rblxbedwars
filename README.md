@@ -6,6 +6,8 @@
 
 [ata](https://illseeyouinhell.atabook.org/)
 
+<details>
+
  <summary> read (ptinfo) </summary>
 
 ` c+h is extremely encouraged `
