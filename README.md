@@ -11,5 +11,6 @@ i make people githubs sometimes .
 check the readme and itll have a note !
 
 hii d's awareness doc : [awareness doc](https://rentry.co/Awarness)
-  
+
+* made to spread awareness ... we are not attacking them *
  
