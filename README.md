@@ -8,12 +8,10 @@
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
-u can call meh zix
+$\color{#9c5a8c}{\textsf{ᐢ ִ ⑅ ᐢ ཾ    zix , minor}}$
 
-i do github comms :p
+$\color{#ae929d}{\textsf{◟⏝  wipwipwip}}$
 
-[strawpage](https://pahikitewisland.straw.page/) - 
-[rentry :p](https://rentry.co/pahikitewisland)
+︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
 
-[awareness doc](https://rentry.co/Awarness)
