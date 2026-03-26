@@ -10,7 +10,7 @@
 
 $\color{#9c5a8c}{\textsf{ᐢ ִ ⑅ ᐢ ཾ    zix , minor}}$
 
-$\color{#ae929d}{\textsf{◟⏝  c+h any & freely}}$
+$\color{#ae929d}{\textsf{◟⏝  c+h any n' freely}}$
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
